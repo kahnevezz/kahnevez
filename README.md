@@ -4,5 +4,5 @@ estou estuandando pelo alura
 este perfil é mais focado nos meus hobbys e futuros projetos (de vez em quando algumas recomendações de filmes\livros)
 utilizo esse perfil para organizar ideias e futuros projetos 💟.
 
-contato abaixo:
+meu contato:
 karenneves2008@gmail.com 
